@@ -1,1 +1,1 @@
-Original Effect [duckduckgo](https://duckduckgo.com).
+Original Effect [duckduckgo](https://www.diegoliv.works/).
