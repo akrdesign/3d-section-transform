@@ -1,0 +1,1 @@
+Original Effect [duckduckgo](https://duckduckgo.com).
